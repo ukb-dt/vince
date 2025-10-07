@@ -1,1 +1,3 @@
-# vince
+- Business account
+- Secondary card
+- Or mail to vince   
